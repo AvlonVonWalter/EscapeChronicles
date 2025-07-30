@@ -1,0 +1,3 @@
+You peak into the coffin...
+You find the number 6!
+-> DONE

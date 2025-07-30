@@ -1,0 +1,1 @@
+Look... The slimes are actually edible... you're gonna pass up free food?
